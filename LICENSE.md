@@ -1,4 +1,4 @@
-# 
+# new CCleaner para PC addons é o melhor CCleaner para PC addons com opcoes de classificacao e arquivos solidos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
